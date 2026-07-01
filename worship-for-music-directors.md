@@ -26,7 +26,7 @@ Worship is not singing, and it is not a musical genre. Framing worship as a soun
 
 ### Misconception 2: Worship is the Emotion
 
-Walk into a modern sanctuary: the lights are blacked out and the volume is up. The logic? *If it's loud enough, you won't hear your own voice; if it's dark enough, you won't notice your neighbor. You get a private bubble with God.*
+Walk into a modern sanctuary: the lights are blacked out and the volume is up. The logic? *If it's loud enough, you won't bother others with your singing; if it's dark enough, you won't notice your neighbor. You get a private bubble with God.*
 
 But look at what that machinery produces. It doesn't engineer a meeting of hearts; it engineers a mood. When we treat goosebumps as the ultimate metric, we train people to mistake an emotional lift for the Holy Spirit, and to read hardship as a sign God has abandoned them.
 
