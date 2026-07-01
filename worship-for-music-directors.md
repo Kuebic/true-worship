@@ -110,7 +110,7 @@ If worship is a lifestyle and God rejects empty songs, why gather on Sunday at a
 
 Look at the word we use. *Corporate* comes from the Latin *corpus*, a body, and a body is many parts working as one. Corporate worship was never meant to be a room full of people each sealed in a private bubble with God, standing side by side but alone. That private bubble is exactly what a blacked-out room and a wall of sound produce, and it misses the whole point. **We gather to make our separate lives of worship into one body with one heart, turned toward a single Center.**
 
-With Heavenly Parent at that center, love moves two ways: up to the Parent, and across to one another. That second direction is a real reason we come, not a byproduct of it. When the family sings, we are not only singing to God; we are singing to each other. Paul calls it "teaching and admonishing (encouraging) one another" — putting the truth into the heart of the person beside us, the truth they will need on some hard week we never hear about.
+With Heavenly Parent at that center, love moves two ways: up to the Parent, and across to one another. That second direction is a real reason we come, not a byproduct of it. When the family sings, we are not only singing to God; we are singing to each other. Paul calls it "teaching and admonishing (encouraging) one another" — putting the truth into the heart of the person beside us, the truth they will need to help them through future struggles and challenges.
 
 It works in reverse too. When you watch a brother or sister pour their heart out to the Parent in the middle of their worst season, grieving and worshipping anyway, your own faith catches fire from theirs. You will not find that alone in your kitchen. We are not a crowd of strangers having private moments in the same room; we are a family, keeping each other warm, turning a Parent's grief into joy together.
 
@@ -134,6 +134,16 @@ You are not producing a musical performance; you are leading a family home to He
 * **Remember:** The songs you choose are teaching tools. A congregation will remember the theology they sang long after they forget the sermon.
 
 When you step up to lead this Sunday, drop the old metrics. Don't ask, *"Are they hyped?"* or *"Are they feeling it?"* Ask: **"Are we drawing near to Heavenly Parent, and are our hearts meeting His?"**
+
+### The Songs This Era Needs
+
+This is where the shift reaches your song list. Our movement already has its holy songs and pioneer songs, and they carried the church through the eras that needed them. They called us to attend, to shed our fallen nature, to pledge ourselves to God, to shout our determination, and to weep inside God's grief. Those songs did their work. Some of us were held together by them in seasons that would have broken us. They are the ground the next songs stand on, and we keep them.
+
+But ground is for building on. Pledging, determination, and shared anguish were the music of the clearing and attendance stages of connecting to God. The True Child's worship needs more songs of its own, and most of them have not been written yet.
+
+Notice what the old repertoire seldom does. It rarely turns to a Parent who is present and says *"You."* It rarely rests once the striving is done. It rarely lets grief give way to joy. We have many songs that grieve alongside God, but He never asked us to stay in the grief longer than He does. He showed us His sorrow so we would come and help lift it, not so we would sit down in it beside Him for good.
+
+So some of this work is now yours to make. Look for songs that speak straight to Heavenly Parent, that give love before asking for anything back, and that come to rest in joy, a child home at last. And where the songs do not exist, write them. Our people need music that says what we now know: the Parent is close, His heart can be comforted, and worship leads somewhere better than burnout.
 
 ### You Cannot Carry the Room Where You Have Not Gone
 
