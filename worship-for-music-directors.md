@@ -89,7 +89,7 @@ Oneness of heart cannot be manufactured, but it can be cultivated through a four
 
 1. **Clear the Self:** Set aside the ego, distractions, and internal blocks that keep the Parent from dwelling within us. This is the authentic heart behind repentance and foundational Holy Songs like *Tan Shim Ga*.
 2. **Attend:** Make Heavenly Parent present and real. Address Him directly as "You," a living Parent in the room, rather than a theological subject you are describing to the audience.
-3. **Invest:** Pour yourself out as an offering meant to gladden Him. Give your heart *before* you feel anything in return (jeongseong). This proactive giving is what distinguishes a true child from a consumer.
+3. **Invest:** Pour yourself out as an offering meant to gladden Him. Pledge your life to God. Give your heart *before* you feel anything in return (jeongseong). This proactive giving is what distinguishes a true child from a consumer.
 4. **Resonate:** In that honest investment, your heart meets His. You naturally begin to feel what He feels, His grief and His joy. The two hearts beat as one.
 
 ---
