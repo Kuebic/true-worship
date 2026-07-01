@@ -28,20 +28,22 @@ Worship is not singing, and it is not a musical genre. Framing worship as a soun
 
 Walk into a modern sanctuary: the lights are blacked out and the volume is up. The logic? *If it's loud enough, you won't hear your own voice; if it's dark enough, you won't notice your neighbor. You get a private bubble with God.*
 
-But look at what that machinery actually produces. It doesn't engineer a meeting of hearts; it engineers a mood. When we treat goosebumps as the ultimate metric, we train people to mistake an emotional lift for the Holy Spirit, and to conclude that a quiet, heavy week means God has abandoned them.
+But look at what that machinery actually produces. It doesn't engineer a meeting of hearts; it engineers a mood. When we treat goosebumps as the ultimate metric, we train people to mistake an emotional lift for the Holy Spirit, and to conclude that challenges and difficulties in life means God has abandoned them.
 
 ---
 
 ## 2. The Evolution of Our Relationship with God
 
-To redefine worship, we must track how our relationship with the Divine has evolved. It is a ladder with three distinct rungs:
+To redefine worship, we must track how our relationship with the Divine has evolved. It has unfolded in three stages, each drawing nearer to the Parent's heart:
 
 ```
-[ True Child ]      -->  Comforts a grieving Parent; takes ownership.
-      ▲
-[ Grateful Child ]  -->  Thanks a provider; focuses on receiving.
-      ▲
 [ Servant ]         -->  Obeys a Master/King; pays a debt of "worth-ship."
+      │
+      ▼
+[ Grateful Child ]  -->  Thanks a provider; focuses on receiving.
+      │
+      ▼
+[ True Child ]      -->  Comforts a grieving Parent; takes ownership.
 ```
 
 ### The Servant (The Old Testament)
@@ -87,10 +89,10 @@ The singing, the tithing, and the production are just vessels. Faithful, unbreak
 
 Oneness of heart cannot be manufactured, but it can be cultivated through a four-part movement:
 
-1. **Clear the Self:** Set aside the ego, distractions, and internal blocks that keep the Parent from dwelling within us. This is the authentic heart behind repentance and foundational Holy Songs like *Tan Shim Ga*.
-2. **Attend:** Make Heavenly Parent present and real. Address Him directly as "You," a living Parent in the room, rather than a theological subject you are describing to the audience.
-3. **Invest:** Pour yourself out as an offering meant to gladden Him. Pledge your life to God. Give your heart *before* you feel anything in return (jeongseong). This proactive giving is what distinguishes a true child from a consumer.
-4. **Resonate:** In that honest investment, your heart meets His. You naturally begin to feel what He feels, His grief and His joy. The two hearts beat as one.
+0. **Clear the Self:** Set aside the ego, distractions, and internal blocks that keep the Parent from dwelling within us. This is the authentic heart behind repentance and foundational Holy Songs like *Tan Shim Ga*.
+1. **Attend:** Make Heavenly Parent present and real. Address Him directly as "You," a living Parent in the room, rather than a theological subject you are describing to the audience.
+2. **Invest:** Pour yourself out as an offering meant to gladden Him. Pledge your life to God. Give your heart *before* you feel anything in return (jeongseong). This proactive giving is what distinguishes a true child from a consumer.
+3. **Resonate:** In that honest investment, your heart meets His. You naturally begin to feel what He feels, His grief and His joy. The two hearts beat as one.
 
 ---
 
@@ -114,12 +116,30 @@ Praise is simply *steadfast love made audible*. It serves three functions:
 
 ### The Shift in Your Leadership
 
-This reframes your role entirely. You are not producing a musical performance; you are leading a family home to their Parent's heart.
+This reframes your role entirely. You are not producing a musical performance; you are leading a family home to Heavenly Parent's heart.
 
 * **When selecting songs, ask:** *Is this line true? Is it coming from the heart? Will it carry the room toward the Parent, or is it just a catchy sound?*
 * **Remember:** The songs you choose are teaching tools. A congregation will remember the theology they sang long after they forget the sermon.
 
-When you step up to lead this Sunday, drop the old metrics. Don't ask, *"Are they hyped?"* or *"Are they feeling it?"* Ask: **"Are we drawing near to Heavenly Parent, and are our hearts meeting His?"** You aren't just running a setlist; you are leading the family to comfort the heart of God.
+When you step up to lead this Sunday, drop the old metrics. Don't ask, *"Are they hyped?"* or *"Are they feeling it?"* Ask: **"Are we drawing near to Heavenly Parent, and are our hearts meeting His?"**
+
+### You Cannot Carry the Room Where You Have Not Gone
+
+You set the tone of heart, not just the key — and no rehearsal can fake it. Sing the words with your heart turned from the Parent, and the room feels the distance and follows you into it. The four beats aren't something you perform toward the congregation. You move through them yourself first — clearing self, attending, investing, resonating — until you actually have somewhere to bring them. Only then is there something real to hand the person in the third row.
+
+A servant can lead a set on skill alone. A true child cannot. What you're handing the family is your own nearness to the Parent's heart, made audible, so they can find the way to it themselves.
+
+---
+
+## 7. The Long Work
+
+You will rarely see the fruit on the Sunday you plant it. The theology your people sing this week settles somewhere deep and waits — for the funeral, the betrayal, the night the lights go dark on their own and not for effect. When that night comes, they won't reach for the sermon. They'll find your song already in their mouth, and the God you sang into them with it: a Parent who grieves, who runs down the road, who aches to be comforted by His own children.
+
+That is why every line matters. You aren't filling twenty minutes; you're forming a family into true children, one song and one week and one year at a time, long after any single service is forgotten.
+
+You inherited a definition of worship long before you chose one. Now you're choosing.
+
+So the next time you step up and the room goes quiet and waits — don't begin worship. Continue it. You've been worshipping since you woke this morning, and the family is only joining the life you were already living. Take them to the one place worth going: home, into the heart of Heavenly Parent, until His heart and theirs beat as one.
 
 ---
 
