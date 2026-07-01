@@ -1,0 +1,11 @@
+title: True Worship
+description: Worship as the life of a true child, becoming one in heart with Heavenly Parent.
+theme: jekyll-theme-cayman
+
+# Cleaner permalinks: /worship-crystal instead of /worship-crystal.html
+permalink: /:name
+
+# Don't publish these in the built site
+exclude:
+  - README.md
+  - LICENSE
