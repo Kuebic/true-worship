@@ -118,51 +118,39 @@ There is a deeper reason still. What a grieving Parent longs for most is to see 
 
 ---
 
-## 6. The Music Director's Real Job
+## 6. You Cannot Carry the Room Where You Have Not Gone
 
-Praise is simply *steadfast love made audible*. It does three things:
+One Christmas I put on a program I was sure couldn't miss. I'd run it the year before and it had worked — the room on its feet, people hooting and hollering. So when it came around again I treated it as a slam-dunk: the same songs, the same arrangements, even the same words I'd say between them, already written out from the year before.
 
-* **It gladdens a grieving Parent:** A servant praises a King to pay a debt. A child says, *"Abba, you are beautiful, I love who you are,"* bringing genuine comfort to a God who has been misunderstood and blamed for ages.
-* **It recognizes the One who aches to be known:** God's deepest wound is being mischaracterized. True praise says, *"I see who you really are."*
-* **It unifies the room:** Shared song is the fastest way to help a hundred separate people *attend, invest, and resonate* at once.
+What I glossed over was that I had a whole new lineup of singers. Songs that were worn-in for me were brand new to them, and I was cocky enough to give an hour-long program only a few rehearsals. On the night, the exact program that had lifted the room a year earlier left it empty. The singers spent the whole time trying not to mess up. So did the instrumentalists. I delivered my lines word for word, just as before. But the heart wasn't there. I had spent everything on the vessel and forgotten to fill it with love and devotion.
 
-### The Shift in Your Leadership
+That night taught me what I now think sits under everything a worship leader does: a room follows its leader into wherever he actually is. You cannot carry people to a nearness you haven't reached yourself. Sing the words with your heart turned away from the Parent, and the room feels the distance and follows you into it — however right the notes are.
 
-You are not producing a musical performance; you are leading a family home to Heavenly Parent's heart.
+The lesson wasn't that I needed more skill. Heart is the thing. Without it, the most extravagant production comes out empty; with it, a small and shaky offering can fill a room. That Christmas I poured everything into the skill and left the heart empty, so all that skill came to nothing.
 
-* **When selecting songs, ask:** *Is this line true? Is it coming from the heart? Will it carry the room toward the Parent, or is it just a catchy sound?*
-* **Remember:** The songs you choose are teaching tools. A congregation will remember the theology they sang long after they forget the sermon.
+Preparation still matters — rehearse enough and you stop fighting the notes, which frees you and the room to worship together instead of just surviving the song. But that is preparation serving the heart. It is never the main thing.
 
-When you step up to lead this Sunday, drop the old metrics. Don't ask, *"Are they hyped?"* or *"Are they feeling it?"* Ask: **"Are we drawing near to Heavenly Parent, and are our hearts meeting His?"**
+So the four beats you already know aren't something you perform *at* a congregation. You walk them yourself first — clear the self, attend, invest, resonate — until you actually have somewhere to bring people. Only then is there anything real to hand the person in the third row.
 
-### The Songs This Era Needs
+Your own nearness to the Parent is what actually reaches the people you're leading. You're not there to perform; you're there to bring the congregation close to His heart. And what you bring them with (praise) is simply steadfast love made audible: it gladdens a grieving Parent, it tells Him *"I see who you really are,"* and it draws a scattered room into one heart turned toward Him.
 
-This is where the shift reaches your song list. Our movement already has its holy songs and pioneer songs, and they carried the church through the eras that needed them. They called us to attend, to shed our fallen nature, to pledge ourselves to God, to shout our determination, and to weep inside God's grief. Those songs did their work. Some of us were held together by them in seasons that would have broken us. They are the ground the next songs stand on, and we keep them.
+This is where it reaches your set list. Over every song, the questions change: Is this line true? Is it coming from the heart? Will it draw the room toward the Parent, or is it just a catchy sound? The songs you choose are teaching tools — the congregation carries the theology they sang long after the sermon is gone.
 
-But ground is for building on. Pledging, determination, and shared anguish were the music of the clearing and attendance stages of connecting to God. The True Child's worship needs more songs of its own, and most of them have not been written yet.
+That also changes what you're measuring. When you step up this Sunday, stop taking the room's temperature, *"Are they hyped? Are they feeling it?"* and ask instead: *"Are we drawing near to Him, and are our hearts meeting His?"*
 
-Notice what the old repertoire seldom does. It rarely turns to a Parent who is present and says *"You."* It rarely rests once the striving is done. It rarely lets grief give way to joy. We have many songs that grieve alongside God, but He never asked us to stay in the grief longer than He does. He showed us His sorrow so we would come and help lift it, not so we would sit down in it beside Him for good.
-
-So some of this work is now yours to make. Look for songs that speak straight to Heavenly Parent, that give love before asking for anything back, and that come to rest in joy, a child home at last. And where the songs do not exist, write them. Our people need music that says what we now know: the Parent is close, His heart can be comforted, and worship leads somewhere better than burnout.
-
-### You Cannot Carry the Room Where You Have Not Gone
-
-You set the tone of heart, not just the key, and no rehearsal can fake it. Sing the words with your heart turned from the Parent, and the room feels the distance and follows you into it. The four beats aren't something you perform toward the congregation. You move through them yourself first — clearing self, attending, investing, resonating — until you actually have somewhere to bring them. Only then is there something real to hand the person in the third row.
-
-A servant can lead a set on skill alone. A true child cannot. What you're handing the family is your own nearness to the Parent's heart, made audible, so they can find the way to it themselves.
-
----
+And some of those songs don't exist yet. The old holy songs and pioneer songs are the ground we stand on, but they served a different era; the songs that go *further* are yours to find, and some of them are yours to write.
 
 ## 7. The Long Work
 
-You will rarely see the fruit on the Sunday you plant it. The theology your people sing this week settles somewhere deep and waits — for the funeral, the betrayal, the night the lights go dark on their own and not for effect. When that night comes, they won't reach for the sermon. They'll find your song already in their mouth, and the God you sang into them with it: a Parent who grieves, who runs down the road, who aches to be comforted by His own children.
+You will rarely see the fruit on the Sunday you plant it. What you sing into people this week settles somewhere deep and waits for the day they finally need it: a hospital hallway, a stretch of doubt, a night they lie awake wondering if God is still there.
 
-That is why every line matters. You aren't filling twenty minutes; you're forming a family into true children, one song and one week and one year at a time, long after any single service is forgotten.
+When that day comes, it isn't the sermon they reach for, it's the songs. The lines they sang a hundred times without thinking come back, and with them the God those lines carried: a Parent who grieves, who aches to be comforted by His own children.
+
+That is why every line matters. You aren't filling twenty minutes; you're forming true children one song, one week, one year at a time, long after any single service is forgotten.
 
 You inherited a definition of worship long before you chose one. Now you're choosing.
 
-So the next time you step up and the room goes quiet and waits — don't begin worship. Continue it. You've been worshipping since you woke this morning, and the family is only joining the life you were already living. Take them to the one place worth going: home, into the heart of Heavenly Parent, until His heart and theirs beat as one.
+So the next time you step up and the room goes quiet and waits, don't begin worship. Continue it. You've been worshipping since you woke this morning: in the thing you forgave, the prayer no one saw, the ordinary faithfulness of a whole week. Sunday isn't where it starts. It's where the congregation joins the life you were already living and you lead them further in, until their hearts and His beat as one.
 
----
 
 [← Back to all three]({{ '/' | relative_url }})

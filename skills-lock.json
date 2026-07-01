@@ -1,0 +1,23 @@
+{
+  "version": 1,
+  "skills": {
+    "writing-beats": {
+      "source": "mattpocock/skills",
+      "sourceType": "github",
+      "skillPath": "skills/in-progress/writing-beats/SKILL.md",
+      "computedHash": "b2bb74a1e15fcac1fec9aac4fa4c8244e8ed7c4eef1f9096ea3b52b7eb091943"
+    },
+    "writing-fragments": {
+      "source": "mattpocock/skills",
+      "sourceType": "github",
+      "skillPath": "skills/in-progress/writing-fragments/SKILL.md",
+      "computedHash": "394bc75401f55d242ecebb548e9932a211b84423ca25ebe7bbfdebde4f6066ce"
+    },
+    "writing-shape": {
+      "source": "mattpocock/skills",
+      "sourceType": "github",
+      "skillPath": "skills/in-progress/writing-shape/SKILL.md",
+      "computedHash": "77007511510c05b602835acdb91a88f435ce5a08a9dbf95ade148f02e4b09548"
+    }
+  }
+}
