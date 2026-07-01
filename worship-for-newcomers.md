@@ -1,18 +1,16 @@
 ---
 title: "How Worship Grew Up"
-description: How worship matures from servant, to child, to true child — a coming of age, not a break from your past.
+description: How worship matures from servant, to child, to true child — a coming of age, not a break from the past.
 layout: default
 ---
 
 # How Worship Grew Up: From the Christian Story Into Ours
 
-If you are new to Unification teaching, start with this: **you almost certainly already know how to worship.**
+Worship did not arrive fully formed; it has grown up over time.
 
-If you have spent your life singing to God, this is not an argument that what you have been doing is wrong. It is a walk through how worship itself has matured across the long history of God and humanity, where one stage grows out of the last.
+Across the long story of God and humanity, it has matured through three stages: from a **servant**, to a **child**, and finally to a **true child**. None of them is a mistake to be outgrown; each grows out of the last, keeping its best and building further.
 
-You will recognize the early stages, because you have lived them. The goal is to see the shape of the road ahead, so the next step feels less like a break from your past and more like a coming of age.
-
-Worship matures in three stages: from a **servant**, to a **child**, and finally to a **true child**. Each stage is real. Each one keeps the best of what came before and builds on it.
+The earlier stages are the ones most of us already know by heart. Seeing the whole road is what makes the next step feel less like a break from the past and more like a coming of age.
 
 ---
 
@@ -24,7 +22,7 @@ Israel stood at the foot of Mount Sinai and trembled. They brought the lamb, the
 
 > **Don't look down on this stage.** It tells the truth about God's holiness, and about the distance sin places between us and the Divine.
 
-A servant's worship is an awe that keeps its shoes off on holy ground. If you have ever felt small before the majesty of God, you have touched this stage. It is the first rung of the ladder, and every step above it stands on it.
+A servant's worship is an awe that keeps its shoes off on holy ground. Anyone who has felt small before the majesty of God has touched this stage. It is the first rung of the ladder, and every step above it stands on it.
 
 ## 2. The Child's Worship
 
@@ -38,7 +36,7 @@ That one word reordered everything. If God is a Father, then worship is no longe
 
 Think of Jesus's stories: the prodigal son returns expecting to be treated like a hired servant, but the father runs to him and throws a feast. Jesus tells the woman at the well that the day has come to worship "in spirit and truth," from the inside out, not at the "correct" holy mountain. In this stage, you are not earning your place; you are being loved into it.
 
-This is a real leap forward from the servant, and it is where the best of Christian worship lives today. But notice which way the love still tends to flow:
+This is a leap forward from the servant, and it is where the best of Christian worship lives today. But notice which way the love still tends to flow:
 
 * *"God, please do this for me."*
 * *"God, we need you."*
@@ -50,7 +48,7 @@ The child is grateful, and the child is loved; but the child is still, mostly, a
 
 ## A Heart That Grieves
 
-Here is what the servant could never see, and what the grateful child often misses. It is the pivot everything else depends on.
+There is one thing the servant could never see, and the grateful child often misses. Everything turns on it.
 
 The Father Jesus revealed is not a detached King who needs nothing. **He is a Parent with a heart, and that heart has been grieving since the beginning.** Slow down and look closely at the scriptures, and it is written plainly:
 
@@ -60,7 +58,7 @@ The Father Jesus revealed is not a detached King who needs nothing. **He is a Pa
 
 Go back to the story of the prodigal's father. He is not sitting serenely on his porch. He is scanning the horizon every day, and the moment he sees his boy, he runs. That is not the posture of someone who needs nothing. That is the posture of aching longing.
 
-The fuller truth is this: God is not only the one who saves us. **God is also the one who suffers, who waits, and who longs to be comforted by His own children.** The cross is where you see all of it at once: a Parent willing to be wounded to the depths just to get His children back.
+So God is not only the one who saves us. **God is also the one who suffers, who waits, and who longs to be comforted by His own children.** The cross shows all of it at once: a Parent willing to be wounded to the depths to get His children back.
 
 ---
 
@@ -74,7 +72,7 @@ This is the third stage, and it is where Unification teaching lives:
 
 Look at what this stage keeps. The servant's awe is still there (the Parent is holy). The child's gratitude is still there (this is Abba, and we are loved). What it adds is a shift in direction and ownership.
 
-The true child turns toward Heavenly Parent as present and real, pours out steadfast love, and in that pouring begins to feel what the Parent feels, His grief and His joy, until the two hearts beat as one.
+The true child turns toward Heavenly Parent as present and near, pours out steadfast love, and in that pouring begins to feel what the Parent feels, His grief and His joy, until the two hearts beat as one.
 
 From that oneness, three things happen on their own:
 
@@ -107,7 +105,7 @@ If oneness of heart is the goal, how do we get there? You cannot force yourself 
 | Step | Action | What It Means |
 | --- | --- | --- |
 | **1** | **Clear the Self** | The fall put a wall between us and God. Through honest confession, we set aside the ego, distractions, and baggage that block Him from coming close. |
-| **2** | **Attend** | Make Heavenly Parent present to you. Speak to Him as "You," a real Parent in the room with you, not a distant theological concept. |
+| **2** | **Attend** | Make Heavenly Parent present to you. Speak to Him as "You," a living Parent in the room with you, not a distant theological concept. |
 | **3** | **Give** | Pour your heart out on purpose to gladden Him *before* you feel anything come back. Giving first, purely for the Parent's sake, is the defining mark of a true child. |
 | **4** | **Meet** | In that honest giving, your heart finds His. You did not force it; it arrived because you cleared the way, drew near, and gave. |
 
@@ -121,15 +119,15 @@ When you watch someone else pour their heart out to God in the middle of a hard 
 
 ---
 
-## You Don't Leave Your Worship Behind; You Grow It Up
+## Worship Isn't Left Behind; It Grows Up
 
-Nobody is asking you to throw away the spiritual history you brought with you. The awe you learned as a servant is true. The gratitude and intimacy you found as a child of the Father are true. Keep every bit of it.
+None of this asks anyone to throw away what they already carry. The awe of the servant still holds. The gratitude and intimacy of the child still hold. All of it stays.
 
-What you are being invited into is the next step down the same road: to see that the Father you have loved all this time has a heart that can be grieved and comforted, and to become the kind of mature child who turns around to comfort it.
+The next step down the same road is this: to see that the Father has a heart that can be grieved and comforted, and to become the kind of mature child who turns around to comfort it.
 
 So the next time you worship, don't only ask, *"Am I feeling it today?"* Ask: **"Am I drawing near to my Parent, and is my heart meeting His?"**
 
-Underneath whatever song is playing, let the real thing flow: a child, finally come home, loving their Father back until the two become one.
+Underneath whatever song is playing, let the heart of it flow: a child, finally come home, loving their Father back until the two become one.
 
 ---
 
