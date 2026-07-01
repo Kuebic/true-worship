@@ -8,7 +8,7 @@ layout: default
 
 If you lead worship, you inherited a definition of it long before you ever chose one. Most of us caught ours from the mainstream Christian industry: the radio hits, the arena conferences, the lowered house lights, and the classic cue: *"Are you ready to worship?"*
 
-We learned what worship *was* by watching how it was *done*, largely inherited from evangelical and Pentecostal stages.
+We learned what worship *was* by watching how it was *done*, mostly on evangelical and Pentecostal stages.
 
 Much of that inheritance is beautiful. But some of it is quietly holding us back, because it was built on a picture of God that our teaching has outgrown. This guide is about sorting the inheritance from the truth, so that as the congregation's worship LEADER, you know exactly what you are doing, why you are doing it, and how.
 
@@ -28,7 +28,7 @@ Worship is not singing, and it is not a musical genre. Framing worship as a soun
 
 Walk into a modern sanctuary: the lights are blacked out and the volume is up. The logic? *If it's loud enough, you won't hear your own voice; if it's dark enough, you won't notice your neighbor. You get a private bubble with God.*
 
-But look at what that machinery actually produces. It doesn't engineer a meeting of hearts; it engineers a mood. When we treat goosebumps as the ultimate metric, we train people to mistake an emotional lift for the Holy Spirit, and to conclude that challenges and difficulties in life means God has abandoned them.
+But look at what that machinery produces. It doesn't engineer a meeting of hearts; it engineers a mood. When we treat goosebumps as the ultimate metric, we train people to mistake an emotional lift for the Holy Spirit, and to read hardship as a sign God has abandoned them.
 
 ---
 
@@ -68,7 +68,7 @@ God is not a self-contained King demanding tribute; He is a Parent with a suffer
 
 ## 3. A New Definition of Worship
 
-With this shift in view, we can establish a clean, accurate definition:
+With this shift in view, we can put it plainly:
 
 > **Worship is the life of a true child whose ultimate aim is to become one in heart with Heavenly Parent.**
 
@@ -108,15 +108,19 @@ Oneness of heart cannot be manufactured, but it can be cultivated through a four
 
 If worship is a lifestyle and God rejects empty songs, why gather on Sunday at all?
 
-We don't gather to create individual, private bubbles in a dark room. **We gather to turn separate lives of worship into a single, unified heart around one common Center.**
+Look at the word we use. *Corporate* comes from the Latin *corpus*, a body, and a body is many parts working as one. Corporate worship was never meant to be a room full of people each sealed in a private bubble with God, standing side by side but alone. That private bubble is exactly what a blacked-out room and a wall of sound produce, and it misses the whole point. **We gather to make our separate lives of worship into one body with one heart, turned toward a single Center.**
 
-When Heavenly Parent is at the center, the love flows in every direction, up to the Parent and across to one another. We are not a collection of isolated consumers; we are a family turning a Parent's grief into joy. When a brother or sister pours out their heart in a hard season, their breakthrough kindles your own.
+With Heavenly Parent at that center, love moves two ways: up to the Parent, and across to one another. That second direction is a real reason we come, not a byproduct of it. When the family sings, we are not only singing to God; we are singing to each other. Paul calls it "teaching and admonishing (encouraging) one another" — putting the truth into the heart of the person beside us, the truth they will need on some hard week we never hear about.
+
+It works in reverse too. When you watch a brother or sister pour their heart out to the Parent in the middle of their worst season, grieving and worshipping anyway, your own faith catches fire from theirs. You will not find that alone in your kitchen. We are not a crowd of strangers having private moments in the same room; we are a family, keeping each other warm, turning a Parent's grief into joy together.
+
+There is a deeper reason still. What a grieving Parent longs for most is to see His scattered children come home and become one. So when the whole body lifts a single heart to Him, we give Him what He has been waiting for. The gathering is not a warm-up for worship. It is a family coming home, letting the Parent hold all of them at once.
 
 ---
 
 ## 6. The Music Director's Real Job
 
-Praise is simply *steadfast love made audible*. It serves three functions:
+Praise is simply *steadfast love made audible*. It does three things:
 
 * **It gladdens a grieving Parent:** A servant praises a King to pay a debt. A child says, *"Abba, you are beautiful, I love who you are,"* bringing genuine comfort to a God who has been misunderstood and blamed for ages.
 * **It recognizes the One who aches to be known:** God's deepest wound is being mischaracterized. True praise says, *"I see who you really are."*
@@ -124,7 +128,7 @@ Praise is simply *steadfast love made audible*. It serves three functions:
 
 ### The Shift in Your Leadership
 
-This reframes your role entirely. You are not producing a musical performance; you are leading a family home to Heavenly Parent's heart.
+You are not producing a musical performance; you are leading a family home to Heavenly Parent's heart.
 
 * **When selecting songs, ask:** *Is this line true? Is it coming from the heart? Will it carry the room toward the Parent, or is it just a catchy sound?*
 * **Remember:** The songs you choose are teaching tools. A congregation will remember the theology they sang long after they forget the sermon.
@@ -133,7 +137,7 @@ When you step up to lead this Sunday, drop the old metrics. Don't ask, *"Are the
 
 ### You Cannot Carry the Room Where You Have Not Gone
 
-You set the tone of heart, not just the key — and no rehearsal can fake it. Sing the words with your heart turned from the Parent, and the room feels the distance and follows you into it. The four beats aren't something you perform toward the congregation. You move through them yourself first — clearing self, attending, investing, resonating — until you actually have somewhere to bring them. Only then is there something real to hand the person in the third row.
+You set the tone of heart, not just the key, and no rehearsal can fake it. Sing the words with your heart turned from the Parent, and the room feels the distance and follows you into it. The four beats aren't something you perform toward the congregation. You move through them yourself first — clearing self, attending, investing, resonating — until you actually have somewhere to bring them. Only then is there something real to hand the person in the third row.
 
 A servant can lead a set on skill alone. A true child cannot. What you're handing the family is your own nearness to the Parent's heart, made audible, so they can find the way to it themselves.
 
