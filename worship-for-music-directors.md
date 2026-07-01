@@ -76,12 +76,20 @@ Worship succeeds not when the room is moved, nor when the band plays flawlessly,
 
 ### Substance Over Sacrifice
 
-Scripture repeatedly warns against confusing the vessel with the substance:
+Scripture repeatedly warns us not to mistake the container for what it's meant to hold:
 
 * **Amos 5:23:** *"Take away from me the noise of your songs; to the melody of your harps I will not listen."*
-* **Hosea 6:6:** *"I desire steadfast love (hesed) and not sacrifice."*
+* **Hosea 6:6:** *"For I desire steadfast love and not sacrifice, the knowledge of God rather than burnt offerings."*
 
-The singing, the tithing, and the production are just vessels. Faithful, unbreaking love (*hesed*) is the substance. Think of the thief on the cross: he couldn't sing, tithe, or serve. Every external act of worship was stripped away, yet he moved the heart of Jesus perfectly with a single phrase of pure, relational love.
+The singing, the tithing, and the church production are just the vessels. Faithful, unbreaking love (*hesed*) is the actual substance. Think of the thief on the cross: he couldn't sing, give money, or serve on a team. Every external religious act was stripped away, yet he moved the heart of Jesus with a single phrase of simple, relational love.
+
+But we have to read Hosea 6:6 carefully so we don't swing to the opposite extreme. When God says, *"I desire steadfast love and not sacrifice,"* He isn't dismissing the offering. It is a matter of priority, not outright rejection — the Hebrew way of saying *this before that*.
+
+Sacrifice is good. Giving God your all matters. The believer who empties their savings, or the family that moves across the world to spend their lives on the mission field — when those sacrifices come from deep love, they are precious to God. He never forgets them. This isn't meant to minimize what you have laid down for Him.
+
+The one thing Hosea guards against is the swap: offering the sacrifice *instead of* the love.
+
+Doing things for God can never stand in for the actual closeness He wants with us. He does not want a gift in place of a relationship; He wants the gift as an overflow of it. Keep the love there, and every sacrifice becomes real worship. Cut the love out, and even the costliest offering arrives at His door empty.
 
 ---
 
